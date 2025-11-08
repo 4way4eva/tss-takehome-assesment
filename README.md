@@ -1,4 +1,4 @@
-# Mintlify Technical Support Specialist Take-Home Assessment
+# Mintlify Technical Support Specialist Take-Home Assessmentt  aBitch yalk gobe go to war n give me my money!!!!!
 
 Welcome to the Technical Support Specialist take-home assessment! This exercise simulates real-world scenarios you'll encounter when helping customers optimize their documentation structure and user experience.
 
